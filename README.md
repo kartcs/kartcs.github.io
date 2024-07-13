@@ -1,3 +1,1 @@
-# kartcs.github.io
-rizz site
-GEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEYARTT
+site wowie
